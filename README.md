@@ -1,1 +1,1 @@
-Wow this profile was cringe. i'll be rewriting it i swear
+A person who thinks all the time has nothing else to think than thoughts
