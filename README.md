@@ -1,1 +1,2 @@
-A person who thinks all the time has nothing else to think than thoughts
+# Hi, I'm Alex!
+I make games and software, sometimes
